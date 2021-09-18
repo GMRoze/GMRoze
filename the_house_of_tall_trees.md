@@ -1,1 +1,5 @@
 They often it is hypocritical to love God and hate your neighbor. And while I mostly agree, I do have to say these people never had a terrible neighbor.
+
+If you ever did, then you might identify with me. I was born in the splendorious city of Curitiba, the capital of State of Paraná, a few decades ago on a sunny sunday at 10:11 AM in the Nossa Senhora das Graças hospital. By lunch time I was taken home by my parents. My family had lived in the same house for almost 40 years, and curiously, had the same neighbor for all these decades. When my parents were arriving home, said neighbor saw the commotion and asked my aunt, who was helping in the car, what was the fuss about. After being notified of the (somewhat unexpected) arrival of another kid in the household, he asked her: "Another one?".
+
+In fact, "Another one?" was, for 18 years, the first of the three things this neighbor, Mr. Virgil, ever said to me. The other ones were, in chronological order: "No", when I was 7 and asked him to give my soccer ball, who landed on his side of the wall, back, and "Watch where you're going", after he almost ran me, aged 15, over with a car in front of his house.
