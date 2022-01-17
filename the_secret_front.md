@@ -1,4 +1,4 @@
-# The KGB Bank
+# The Secret Front
 
 <!-- Inspired by the John Christmas' story and [KGB Banker](https://www.amazon.com/KGB-Banker-William-Burton-McCormick-ebook/dp/B09GTBX6ZQ), but in less international-spy thriller and more in a geopolitics corruption thriler -->
 
@@ -8,6 +8,6 @@ Jahnis takes a governmental job as a bank regulator for the local European Bank 
 
 In this conspiracy, Kraule realizes not only is the bank related to the Russian Mafia and the former KGB in smuggling narcotics in St. Petersburg, human trafficking in Belarus, but has also started transporting weapons from the Russian-separatist forces in Ukraine to Eastern Latvia.
 
-The time is set, as society slowly prepares to what seems a shadow war between corrupt government officials, malicious russian agents of the FSB and their rebels, extremists latvian right-wingers and the few remaining people loyal to democracy. He also uncovers secrets such as the _Vilkacis Initiative_ and _Sektors V_.
+The time is set, as society slowly prepares to what seems a shadow war between corrupt government officials, malicious russian agents of the FSB and their rebels, extremists latvian right-wingers and the few remaining people loyal to democracy. He also uncovers secrets such as the _Vilkacis Initiative_ and _Sector V_.
 
 <!-- Also, he dies midway throught, I guess -->
