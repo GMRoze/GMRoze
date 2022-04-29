@@ -24,7 +24,7 @@ My biggest victories 🏆 were from 2018: My article "10 things you didn't know 
 
 In any case, since then I had more story ideas than my head could fit, I decided to write them down and bit-by-bit (word-by-word) we will get somewhere somehow.
 
-I've been living in Northern France 🥐🍷 for quite a while now, and have deeply fell in love with the region as well (how many cultures can one person fall in love with?). The Flemish mixture of French names and Dutch surnames, and where the Huguenots meet Europe's rust belt ⛪🏭.
+I've been living in Northern France 🥐🍷 (slowly becoming Ch'ti/Lilloise) for quite a while now, and have deeply fell in love with the region as well (how many cultures can one person fall in love with?). The Flemish mixture of French names and Dutch surnames, and where the Huguenots meet Europe's rust belt ⛪🏭.
 
 Anyway, that's probably enough about me. What about you?
 
