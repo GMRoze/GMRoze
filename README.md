@@ -1,3 +1,6 @@
+![Rochelle](https://upload.wikimedia.org/wikipedia/commons/3/3b/Siege_of_La_Rochelle_1881_Henri_Motte_1846_1922.jpg)
+_Psaume 68 | Siège de La Rochelle_
+
 # 🌲 G.M. Roze
 
 Hello or Bonjour! My name is Gustav Roze and I'm Latvian-Brazilian writer/essayist/articulist (?) based in Lille, France.
@@ -24,3 +27,9 @@ In any case, since then I had more story ideas than my head could fit, I decided
 I've been living in Northern France 🥐🍷 for quite a while now, and have deeply fell in love with the region as well (how many cultures can one person fall in love with?). The Flemish mixture of French names and Dutch surnames, and where the Huguenots meet Europe's rust belt ⛪🏭.
 
 Anyway, that's probably enough about me. What about you?
+
+> _Dans quel granit, ô mes Cévennes,_ <br/>
+> _Fut taillé ce peuple vainqueur ?_ <br/>
+> _Quel sang avaient-ils dans les veines ?_ <br/>
+> _Quel amour avaient-ils au cœur ?_ <br/>
+
