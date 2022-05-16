@@ -33,4 +33,3 @@ Anyway, that's probably enough about me. What about you?
 > _Quel sang avaient-ils dans les veines ?_ <br/>
 > _Quel amour avaient-ils au cœur ?_ <br/>
 
-<!-- git config test -->
